@@ -1,1 +1,0 @@
-# gulcan_aslan
